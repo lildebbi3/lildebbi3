@@ -1,3 +1,4 @@
 Hey, I'm Lildebbie.
 
-I'm a CS student at a KSU and I'll probably be showing off my dumb crap.
+If you are looking for Merrick, you found him. These are all the projects that I felt putting on display. Not all of them are great, but I hope you can see how much I've developed over time. 
+
